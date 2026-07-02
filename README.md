@@ -1,0 +1,1 @@
+# bumame_asset
